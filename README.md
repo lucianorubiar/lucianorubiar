@@ -10,6 +10,3 @@ Meu nome é Luciano Rubiar 🤩
 
 lucianorubiar@gmail.com
 
-@luciano_rubiar
-
-![]()https://media1.tenor.com/m/jmcXaR_P4eAAAAAd/amandahaep-heartstopper.gif
